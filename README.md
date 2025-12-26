@@ -1,6 +1,5 @@
 about me:
- meu nome é dede e sou malusco, estou ha anos fazendo coisas que nunca saem do papel, culpa de quem? se eu fosse rico, nada disso seria assim.
- Quero  ser rico, alguem me contrata com um salario de 10k+ por gentileza? esse tipo de numero eu so vejo em jogos mesmo, esperança é a ultima que morre
+ meu nome é andre, fui estudante do virginio santillo do 6 ao 3 ano, tive que sair no meio do terceiro ano por falta de dinheiro, fui para o polivalente frei joao batista e me formei no EM. comecei a trabalhar em uma padaria como padeiro e estudar, minhas notas desceram imediatamente, foi dificil. sai da padaria pra trabalhar em uma confeitaria de atendente de seg a sab de 12 as 19:30(quando eu n fazia hora extra), estou ha anos fazendo coisas que nunca saem do papel, a esperança é a ultima que morre
 
 
 
